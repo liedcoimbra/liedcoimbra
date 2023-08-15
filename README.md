@@ -5,4 +5,4 @@
 - 📫 How to reach me: 
 discord: kaualied 
 instagram: @lied_coimbra
-linkedin: https://www.linkedin.com/in/kau%C3%A3-lied-coimbra-63573716a/
+linkedin: https://www.linkedin.com/in/kaualcoimbra/
